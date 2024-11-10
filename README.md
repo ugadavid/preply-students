@@ -9,5 +9,7 @@ https://docs.google.com/document/d/1AasaZFr-bufVTiicRNfvHfWCwMbh7sIq/edit?usp=sh
 
 
 
-**241110__
+__241110__
 ## Leçon
+https://docs.google.com/document/d/1OFGLGolLD8ej6QuS4Nj7t3bPGb46u2RK/edit?usp=sharing&ouid=116841420822309595565&rtpof=true&sd=true
+
