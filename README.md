@@ -13,3 +13,5 @@ __241110__
 ## Leçon
 https://docs.google.com/document/d/1OFGLGolLD8ej6QuS4Nj7t3bPGb46u2RK/edit?usp=sharing&ouid=116841420822309595565&rtpof=true&sd=true
 
+## Exercices
+https://docs.google.com/document/d/16xKVMXduzRcJ8IPFBBXdnmXVrV666dN0/edit?usp=sharing&ouid=116841420822309595565&rtpof=true&sd=true
